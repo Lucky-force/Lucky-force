@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Lucky-force
+- 👋 Hi, I’m @.
 - 👀 I’m interested in nothing
 - 🌱 I’m currently learning how to sleep
 - 💞️ I’m looking to collaborate on nothing
